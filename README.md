@@ -1,0 +1,2 @@
+# primeiros exercícios
+aprendizagem - inicio
