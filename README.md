@@ -1,2 +1,2 @@
-# primeiros exercícios 🤣
+# primeiros exercícios 🖥️
 aprendizagem - inicio
